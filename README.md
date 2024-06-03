@@ -12,4 +12,4 @@ luismarcheti2006@icloud.com
 
 @luismarcheti
 
- ![.].(https://media.tenor.com/F1I8c-ImZ7YAAAAi/donald-duck-clapping-hands.gif 
+ ![.].(https://media.tenor.com/F1I8c-ImZ7YAAAAi/donald-duck-clapping-hands.gif) 
